@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new Bot for sandwich attack bot | meme-coin-scanning & MEV-detection, the #1 sandwich attack bot. Includes meme-coin-scanning and MEV-detection for a
 
 
 
